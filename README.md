@@ -1,4 +1,4 @@
-Welcome to my GitHub profile!! I will upload my code up here for all of you to look and judge. I'm open for feedback! That's all. Thanks for reading :P
+Welcome to my GitHub profile!! I will upload my code up here for all of you to look and judge. I'm open for feedback!
 Some of my links!
 Youtube : https://www.youtube.com/@professorvatcraft
 Twitter : https://x.com/Vattycrafty
